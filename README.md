@@ -1,2 +1,6 @@
-# amazon_banned_me_for_invalid_reason
-Amazon banned me for invalid reason
+# Amazon AU banned me for invalid reason
+Amazon AU banned me for invalid reason @amzn
+
+https://www.amazon.com.au
+
+endermanbugzjfc@gmail.com
